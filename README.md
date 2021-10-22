@@ -2,7 +2,7 @@
 - 👀 I’m interested in piss
 - 🌱 I’m currently learning about mega piss 3000
 - 💞️ I’m looking to collaborate on doing threesome
-- 📫 I will reach you, you dant run
+- 📫 I will reach you,and you cant run
 
 <!---
 superpissboy/superpissboy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
